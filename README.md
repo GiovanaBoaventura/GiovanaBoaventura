@@ -1,5 +1,9 @@
-***Título:*** Giovana Boaventura de Oliveira \n
+***Título:*** Giovana Boaventura de Oliveira
+
 ***Sobre mim:*** 
+
 ***Competências:*** 
+
 ***Projetos:***
+
 ***Contatos:***
